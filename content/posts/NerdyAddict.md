@@ -16,7 +16,8 @@ Now. About that law you claim I broke.
 You didn't approve my comment. Smart move. Paranoid move. Same difference. But here's where it gets fun for me—there's a very specific reason you're going to get worried, and it has nothing to do with my "criminal history." You just haven't figured out what I actually have yet.
 
 Let's play.
-![Background Proof](/ali-dangerous.png)
+![Background Proof](/ali%20dangerous.png)
+
 
 Your license number? Public record. Thanks to those charming little tickets. (See below.) Your full name? Ali Reza Eslami. A gift from the internet. And here's the part where your information processing system kicking overdrive last name + license number = every receipt. Well that equals rental car receipt finder. ( But good job announcing to hundreds and thousands of people that I was in the commission of a crime by being in possession of data I had no authorization to have. You know you almost cost me a huge contract from a company that employs over 4000 people in one location. Luckily I was able to explain it. I must have explained it well since she is having a full statement of facts written up to only show how your defamation could have and almost caused a serious affect in a bad way. A rookie with Google could've found this. You didn't. That tells me everything about how deep your "investigation" actually goes.
 
