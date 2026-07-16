@@ -1,3 +1,12 @@
+---
+title: "I've been watching the threads unravel."
+description: "A response regarding public records, data, and recent discussions."
+publishDate: "16 July 2026"
+tags: ["general"]
+---
+
+
+
 I've been watching the threads unravel. And oh... they're unraveling fast.
 
 Let's start with that adorable little fiction on Nerdbirdmafia.com—the one where Aetna is supposedly "investigating."  You really went there. Here's the thing though: Aetna doesn't investigate ghosts. They don't chase shadows. And they certainly don't outsource their detective work to a WordPress blog run by someone who thinks public records are state secrets. But keep building that house of cards. I *love* watching the architecture.
