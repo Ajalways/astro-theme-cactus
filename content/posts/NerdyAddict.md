@@ -50,8 +50,8 @@ Sleep tight, Nerdy.
 The monsters aren't under your bed. They're in your metadata.
 
 ![Rental Receipt](/ali-rental.png)
+<img width="191" height="741" alt="ali namepass" src="https://github.com/user-attachments/assets/c36861a7-87a1-4666-a11c-6f28e524f0de" />
 
-![Password Proof](/ali%20namepass.png)
 
 ![Background Check](/MYBG.jpg)
 
