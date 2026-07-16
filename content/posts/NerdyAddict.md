@@ -48,9 +48,14 @@ You can play it off. You will. I expect the performance. The smug denials. The "
 Sleep tight, Nerdy.
 
 The monsters aren't under your bed. They're in your metadata.
+
 ![Rental Receipt](/ali-rental.png)
-![Password Proof](/ali-namepass.png)
+
+![Password Proof](/ali%20namepass.png)
+
 ![Background Check](/MYBG.jpg)
+
+
 
 
 
