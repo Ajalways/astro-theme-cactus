@@ -1,3 +1,4 @@
+<img width="1161" height="1881" alt="ali websites" src="https://github.com/user-attachments/assets/d58e54c2-eaa4-49e9-a614-7986a9501997" />
 ---
 title: "I've been watching the threads unravel."
 description: "A response regarding public records, data, and recent discussions."
