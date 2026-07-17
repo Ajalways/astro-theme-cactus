@@ -16,7 +16,7 @@ Now. About that law you claim I broke.
 You didn't approve my comment. Smart move. Paranoid move. Same difference. But here's where it gets fun for me—there's a very specific reason you're going to get worried, and it has nothing to do with my "criminal history." You just haven't figured out what I actually have yet.
 
 Let's play.
-![Background Proof](/ali%20dangerous.png)
+
 
 
 Your license number? Public record. Thanks to those charming little tickets. (See below.) Your full name? Ali Reza Eslami. A gift from the internet. And here's the part where your information processing system kicking overdrive last name + license number = every receipt. Well that equals rental car receipt finder. ( But good job announcing to hundreds and thousands of people that I was in the commission of a crime by being in possession of data I had no authorization to have. You know you almost cost me a huge contract from a company that employs over 4000 people in one location. Luckily I was able to explain it. I must have explained it well since she is having a full statement of facts written up to only show how your defamation could have and almost caused a serious affect in a bad way. A rookie with Google could've found this. You didn't. That tells me everything about how deep your "investigation" actually goes.
@@ -28,7 +28,7 @@ Too late. I don't need X. I don't need screenshots. I don't need your deleted hi
 I have something better. I have *time*.
 
 Remember those screenshots you posted? The ones from four years ago that "proved" I was some kind of menace? Cute. Really. If you'd dug *one layer deeper*—just one—you'd have found those exact images were already Exhibit A in a civil suit. Spoiler: I walked away with the settlement. You walked away with... well, apparently a false sense of security.
-![Background Check](/MYBG.jpg)
+
 
 
 But that's changing.
@@ -49,13 +49,11 @@ Sleep tight, Nerdy.
 
 The monsters aren't under your bed. They're in your metadata.
 
-![Rental Receipt](/ali-rental.png)
-<img width="191" height="741" alt="ali namepass" src="https://github.com/user-attachments/assets/c36861a7-87a1-4666-a11c-6f28e524f0de" />
 
 
-![Background Check](/MYBG.jpg)
 
-<img width="1161" height="1881" alt="ali websites" src="https://github.com/user-attachments/assets/d58e54c2-eaa4-49e9-a614-7986a9501997" />
+
+
 
 
 
